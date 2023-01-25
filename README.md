@@ -5,7 +5,7 @@ when you have eliminated all which is impossible,then whatever remains,however i
 **Installation of tools**
 
 
-Install:
+**Install**:
 
 Git bash
 R studio
