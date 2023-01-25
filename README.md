@@ -52,3 +52,6 @@ funny every gent there is trying to get a crew to try and embarass ladies who ca
 [pintrest](https://www.pintrest.com)
 
 That is soo sad! :sad:😒😒😒
+
+Carole's footnote [^1]
+
