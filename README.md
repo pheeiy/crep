@@ -51,4 +51,4 @@ funny every gent there is trying to get a crew to try and embarass ladies who ca
 [instagram](https://www.instagram.com)
 [pintrest](https://www.pintrest.com)
 
-That is soo sad! :sad:
+That is soo sad! :sad:😒😒😒
